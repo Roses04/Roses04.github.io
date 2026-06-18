@@ -1,4 +1,4 @@
-# Hi! I'm Dionkel Rosas or Roses04 in whole Internet 👋
+# Hi! I'm Roses04 in whole Internet 👋
 ### Systems Engineering Student | Video Game Developer | Digital Artist
 
 ## 🚀 About Me
